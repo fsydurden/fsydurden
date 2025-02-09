@@ -1,1 +1,1 @@
-all the ways you wish you could be , that's me.
+I'm a tech enthusiast with basic knowledge of cybersecurity, networking, and programming. I enjoy building web projects using HTML, CSS, JavaScript, and Python while learning more about security and networking. Let's connect and collaborate!
